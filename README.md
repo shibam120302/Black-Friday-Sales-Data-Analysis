@@ -1,4 +1,4 @@
-# Black Friday Sales Data Analysis BY SHIBAM NATH ❤❤
+# Black Friday Sales Data Analysis BY SHIBAM NATH ❤
 
 ## Reference
 
